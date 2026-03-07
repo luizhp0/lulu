@@ -1,8 +1,7 @@
-# Lucas beta
+# Projeto curso
 
-## Pedro Wiski
+## disciplinas
 
-### Alberto cabeçudo
+### Dicas
 
 
-# oioioioioioioioiioiojckhjvasdgftufctdfytdcfhchgvfvdkhaghchgdcrhgasv
